@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...asd
 - 📫 How to reach me ...fh
 - 😄 Pronouns: ...5465
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...5454
 6vhj
 <!---vbm
 verterseder/verterseder is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

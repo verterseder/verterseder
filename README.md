@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @verterseder
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...dd
-- 💞️ I’m looking to collaborate on ...asdwer
+- 💞️ I’m looking to collaborate on ...asdwerm.,
 - 😄 Pronouns: ...5465jfyh52ads
 - ⚡ Fun fact: ...54545
 6vhjwer132

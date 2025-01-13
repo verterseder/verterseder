@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...dd
 - 💞️ I’m looking to collaborate on ...asdwerm.,
 - 😄 Pronouns: ...5465jfyh52ads
-- ⚡ Fun fact: ...54545
+- ⚡ Fun fact: ...54545eq
 6vhjwer132212
 <!---vbmsdft5
 verterseder/verterseder is a ✨ special ✨ rep12ository because its `README.md` (this file) appears on your GitHub profile.

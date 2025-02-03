@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vertersedersdfe
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...ddnm,
+- 🌱 I’m currently learning ...ddnm,,jk
 - 💞️ I’m looking to collaborate on ...asdwerm.,mhj
 - 😄 Pronouns: ...5465jfyh52ads52369
 - ⚡ Fun fact: ...54545eq6215225fdsf

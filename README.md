@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...ddnm,,jk
 - 💞️ I’m looking to collaborate on ...asdwerm.,mhj
-- 😄 Pronouns: ...5465jfyh52ads52369
+- 😄 Pronouns: ...5465jfyh52ads5236915263+
 - ⚡ Fun fact: ...54545eq6215225fdsf
 6vhjwer132212
 <!---vbmsdft5484822

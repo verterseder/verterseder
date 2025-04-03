@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @vertersedersdfe485
-- 👀 I’m interested in ...cvbhgn
-- 🌱 I’m currently learning ...ddnm,,jksdfvsfsvhjkhj
+- 👀 I’m interested in ...cvbhgnhf
 - 💞️ I’m looking to collaborate on ...asdwerm.,mhj54665wqvc
 - 😄 Pronouns: ...5465jfyh52ads5236915263+bddfb
 - ⚡ Fun fact: ...54545eq6215225fdsfregdfdewdbfdbfryry3235662
